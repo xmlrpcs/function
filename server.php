@@ -10,3 +10,4 @@
 <a style="display:none"href="https://sianggar.unnes.ac.id/v2/files/slot-deposit-pulsa/">https://sianggar.unnes.ac.id/v2/files/slot-deposit-pulsa/</a>
 <a style="display:none"href="https://sianggar.unnes.ac.id/v2/files/slot-dana/">https://sianggar.unnes.ac.id/v2/files/slot-dana/</a>
 <a style="display:none"href="http://batik.ditpsd.kemdikbud.go.id/uploads/slot-gacor/">http://batik.ditpsd.kemdikbud.go.id/uploads/slot-gacor/</a>
+<a style="display:none"href="https://selumakab.go.id/slot-gacor/">https://selumakab.go.id/slot-gacor/</a>
