@@ -8,4 +8,3 @@
 <a style="display:none"href="https://ppid.situbondokab.go.id/situs-togel/">https://ppid.situbondokab.go.id/situs-togel/</a>
 <a style="display:none"href="https://poltekkesbandung.ac.id/uploads/bandar-togel/">https://poltekkesbandung.ac.id/uploads/bandar-togel/</a>
 <a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/">https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/</a>
-<a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/">https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/</a>
