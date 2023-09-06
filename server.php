@@ -1,2 +1,11 @@
 <a style="display:none"href="https://www.maxxellby.com/">https://www.maxxellby.com/</a>
-<a style="display:none"href="https://unsimatupang.ac.id/"> https://unsimatupang.ac.id/</a>
+<a style="display:none"href="https://unsimatupang.ac.id/">https://unsimatupang.ac.id/</a>
+<a style="display:none"href="https://xn--rupiahslot-i5a.com/">https://xn--rupiahslot-i5a.com/</a>
+<a style="display:none"href="http://dtd-akp.situbondokab.go.id/slot-dana/">http://dtd-akp.situbondokab.go.id/slot-dana/</a>
+<a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/situs-togel/">https://www.e-spmamsa.simalungunkab.go.id/situs-togel/</a>
+<a style="display:none"href="https://asli-diskopum.jemberkab.go.id/data/bo-togel/">https://asli-diskopum.jemberkab.go.id/data/bo-togel/</a>
+<a style="display:none"href="https://administrasi.uts.ac.id/-/togel-pulsa/">https://administrasi.uts.ac.id/-/togel-pulsa/</a>
+<a style="display:none"href="https://ppid.situbondokab.go.id/situs-togel/">https://ppid.situbondokab.go.id/situs-togel/</a>
+<a style="display:none"href="https://poltekkesbandung.ac.id/uploads/bandar-togel/">https://poltekkesbandung.ac.id/uploads/bandar-togel/</a>
+<a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/">https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/</a>
+<a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/">https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/</a>
