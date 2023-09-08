@@ -6,7 +6,10 @@
 <a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/situs-togel/">https://www.e-spmamsa.simalungunkab.go.id/situs-togel/</a>
 <a style="display:none"href="https://asli-diskopum.jemberkab.go.id/data/bo-togel/">https://asli-diskopum.jemberkab.go.id/data/bo-togel/</a>
 <a style="display:none"href="https://administrasi.uts.ac.id/-/togel-pulsa/">https://administrasi.uts.ac.id/-/togel-pulsa/</a>
+<a style="display:none"href="https://ppid.situbondokab.go.id/api/slot-gacor/">https://ppid.situbondokab.go.id/api/slot-gacor/</a>
 <a style="display:none"href="https://ppid.situbondokab.go.id/situs-togel/">https://ppid.situbondokab.go.id/situs-togel/</a>
 <a style="display:none"href="https://poltekkesbandung.ac.id/uploads/bandar-togel/">https://poltekkesbandung.ac.id/uploads/bandar-togel/</a>
 <a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/">https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/</a>
 <a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/slot88/">https://www.e-spmamsa.simalungunkab.go.id/slot88/</a>
+<a style="display:none"href="https://administrasi.uts.ac.id/sia/assets/slot-thailand/">https://administrasi.uts.ac.id/sia/assets/slot-thailand/</a>
+<a style="display:none"href="https://e-spmamsa.simalungunkab.go.id/assets/slot-thailand/">https://e-spmamsa.simalungunkab.go.id/assets/slot-thailand/</a>
