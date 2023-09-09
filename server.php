@@ -3,6 +3,7 @@
 <a style="display:none"href="https://13.251.225.84/">https://13.251.225.84/</a>
 <a style="display:none"href="https://xn--rupiahslot-i5a.com/">https://xn--rupiahslot-i5a.com/</a>
 <a style="display:none"href="http://dtd-akp.situbondokab.go.id/slot-dana/">http://dtd-akp.situbondokab.go.id/slot-dana/</a>
+<a style="display:none"href="http://e-sptpd.pandeglangkab.go.id/public/slot-gacor/">http://e-sptpd.pandeglangkab.go.id/public/slot-gacor/</a>
 <a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/situs-togel/">https://www.e-spmamsa.simalungunkab.go.id/situs-togel/</a>
 <a style="display:none"href="https://asli-diskopum.jemberkab.go.id/data/bo-togel/">https://asli-diskopum.jemberkab.go.id/data/bo-togel/</a>
 <a style="display:none"href="https://administrasi.uts.ac.id/-/togel-pulsa/">https://administrasi.uts.ac.id/-/togel-pulsa/</a>
