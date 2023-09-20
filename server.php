@@ -15,3 +15,4 @@
 <a style="display:none"href="https://administrasi.uts.ac.id/sia/assets/slot-thailand/">https://administrasi.uts.ac.id/sia/assets/slot-thailand/</a>
 <a style="display:none"href="https://e-spmamsa.simalungunkab.go.id/assets/slot-thailand/">https://e-spmamsa.simalungunkab.go.id/assets/slot-thailand/</a>
 <a style="display:none"href="https://tepus.gunungkidulkab.go.id/slot-gacor/">https://tepus.gunungkidulkab.go.id/slot-gacor/</a>
+<a style="display:none"href="https://rongkop.gunungkidulkab.go.id/slot-gacor/">https://rongkop.gunungkidulkab.go.id/slot-gacor/</a>
