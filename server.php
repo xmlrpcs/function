@@ -1,18 +1,7 @@
 <a style="display:none"href="https://www.maxxellby.com/">https://www.maxxellby.com/</a>
+<a style="display:none"href="https://https://wahyu4d.matthewwilliamson.com/">https://wahyu4d.matthewwilliamson.com/</a>
+<a style="display:none"href="https://wahyu4d.levainbakery.com/">https://wahyu4d.levainbakery.com/</a>
 <a style="display:none"href="https://unsimatupang.ac.id/">https://unsimatupang.ac.id/</a>
 <a style="display:none"href="https://13.251.225.84/">https://13.251.225.84/</a>
 <a style="display:none"href="https://xn--rupiahslot-i5a.com/">https://xn--rupiahslot-i5a.com/</a>
-<a style="display:none"href="http://dtd-akp.situbondokab.go.id/slot-dana/">http://dtd-akp.situbondokab.go.id/slot-dana/</a>
-<a style="display:none"href="http://e-sptpd.pandeglangkab.go.id/public/slot-gacor/">http://e-sptpd.pandeglangkab.go.id/public/slot-gacor/</a>
-<a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/situs-togel/">https://www.e-spmamsa.simalungunkab.go.id/situs-togel/</a>
-<a style="display:none"href="https://asli-diskopum.jemberkab.go.id/data/bo-togel/">https://asli-diskopum.jemberkab.go.id/data/bo-togel/</a>
-<a style="display:none"href="https://administrasi.uts.ac.id/-/togel-pulsa/">https://administrasi.uts.ac.id/-/togel-pulsa/</a>
-<a style="display:none"href="https://ppid.situbondokab.go.id/api/slot-gacor/">https://ppid.situbondokab.go.id/api/slot-gacor/</a>
-<a style="display:none"href="https://ppid.situbondokab.go.id/situs-togel/">https://ppid.situbondokab.go.id/situs-togel/</a>
-<a style="display:none"href="https://poltekkesbandung.ac.id/uploads/bandar-togel/">https://poltekkesbandung.ac.id/uploads/bandar-togel/</a>
-<a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/">https://www.e-spmamsa.simalungunkab.go.id/bocoran-admin-jarwo/</a>
-<a style="display:none"href="https://www.e-spmamsa.simalungunkab.go.id/slot88/">https://www.e-spmamsa.simalungunkab.go.id/slot88/</a>
-<a style="display:none"href="https://administrasi.uts.ac.id/sia/assets/slot-thailand/">https://administrasi.uts.ac.id/sia/assets/slot-thailand/</a>
-<a style="display:none"href="https://e-spmamsa.simalungunkab.go.id/assets/slot-thailand/">https://e-spmamsa.simalungunkab.go.id/assets/slot-thailand/</a>
-<a style="display:none"href="https://tepus.gunungkidulkab.go.id/slot-gacor/">https://tepus.gunungkidulkab.go.id/slot-gacor/</a>
-<a style="display:none"href="https://rongkop.gunungkidulkab.go.id/slot-gacor/">https://rongkop.gunungkidulkab.go.id/slot-gacor/</a>
+
