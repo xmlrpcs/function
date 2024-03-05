@@ -1,2 +1,2 @@
-<a style="display:none"href="https://disbudpar.cirebonkota.go.id/product/sgacor/">slot gacor</a>
-<a style="display:none"href="https://dispora.cirebonkota.go.id/products/asiawin/">https://dispora.cirebonkota.go.id/products/asiawin/</a>
+<a style="display:none"href="https://inlislite-muktiwari.bekasikab.go.id/thailand/">slot thailand</a>
+<a style="display:none"href="http://ptkat.nursing.ui.ac.id/error/">slot thailand</a>
