@@ -5,3 +5,6 @@
 <a style="display:none"href="https://surat.pta-padang.go.id/macauu/">https://surat.pta-padang.go.id/macauu/</a>
 <a style="display:none"href="https://surat.pta-padang.go.id/store/slot-thailand/">https://surat.pta-padang.go.id/store/slot-thailand/</a>
 <a style="display:none"href="https://surat.pta-padang.go.id/store/asiawin/">https://surat.pta-padang.go.id/store/asiawin/</a>
+<a style="display:none"href="https://jike.fmipa.ugm.ac.id/store/thailand/">https://jike.fmipa.ugm.ac.id/store/thailand/</a>
+<a style="display:none"href="https://jike.fmipa.ugm.ac.id/store/toto/">https://jike.fmipa.ugm.ac.id/store/toto/</a>
+<a style="display:none"href="https://jike.fmipa.ugm.ac.id/store/asiawin/">https://jike.fmipa.ugm.ac.id/store/asiawin/</a>
