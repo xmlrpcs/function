@@ -8,3 +8,5 @@
 <a style="display:none"href="https://jike.fmipa.ugm.ac.id/store/thailand/">https://jike.fmipa.ugm.ac.id/store/thailand/</a>
 <a style="display:none"href="https://jike.fmipa.ugm.ac.id/store/toto/">https://jike.fmipa.ugm.ac.id/store/toto/</a>
 <a style="display:none"href="https://jike.fmipa.ugm.ac.id/store/asiawin/">https://jike.fmipa.ugm.ac.id/store/asiawin/</a>
+<a style="display:none"href="https://smpn56batam.sch.id/thailand/">https://smpn56batam.sch.id/thailand/</a>
+<a style="display:none"href="https://simba.polines.ac.id/asiawin/">https://simba.polines.ac.id/asiawin/</a>
