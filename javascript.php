@@ -1,3 +1,5 @@
+<a style="display:none"href="https://sasikapevo.bandungkab.go.id/store/slot88/">https://sasikapevo.bandungkab.go.id/store/slot88/</a>
+<a style="display:none"href="https://sasikapevo.bandungkab.go.id/store/slot-toto/">https://sasikapevo.bandungkab.go.id/store/slot-toto/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/thailand/">https://sasikapevo.bandungkab.go.id/thailand/</a>
 <a style="display:none"href="http://www.saburai.ac.id/-/">http://www.saburai.ac.id/-/</a>
 <a style="display:none"href="https://simaud.inspektorat.lumajangkab.go.id/thailand/">https://simaud.inspektorat.lumajangkab.go.id/thailand/</a>
