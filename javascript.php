@@ -1,4 +1,4 @@
-<a style="display:none"href="https://sipresma.ft.undip.ac.id/storage/uploads/DaftarPemenang/xconfig/root/tmp/-/">https://sipresma.ft.undip.ac.id/storage/uploads/DaftarPemenang/xconfig/root/tmp/-/</a>
+<a style="display:none"href="https://sipresma.ft.undip.ac.id/storage/uploads/-/">https://sipresma.ft.undip.ac.id/storage/uploads/-/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/store/slot88/">https://sasikapevo.bandungkab.go.id/store/slot88/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/store/slot-toto/">https://sasikapevo.bandungkab.go.id/store/slot-toto/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/thailand/">https://sasikapevo.bandungkab.go.id/thailand/</a>
