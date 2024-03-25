@@ -1,3 +1,6 @@
+<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/thailand/">http://budgeting.jatimprov.go.id:3384/thailand/</a>
+<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/products/slot88/">http://budgeting.jatimprov.go.id:3384/products/slot88/</a>
+<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/products/toto-slot/">http://budgeting.jatimprov.go.id:3384/products/toto-slot/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/storage/dana/">https://sasikapevo.bandungkab.go.id/storage/dana/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/storage/thailand/">https://sasikapevo.bandungkab.go.id/storage/thailand/</a>
 <a style="display:none"href="https://sipresma.ft.undip.ac.id/storage/uploads/-/">https://sipresma.ft.undip.ac.id/storage/uploads/-/</a>
