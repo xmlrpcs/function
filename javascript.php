@@ -1,3 +1,8 @@
+<a style="display:none"href="https://sipirus.sukabumikab.go.id/storage/uploads/-/slot88/">https://sipirus.sukabumikab.go.id/storage/uploads/-/slot88/</a>
+<a style="display:none"href="https://sipirus.sukabumikab.go.id/storage/uploads/-/sthai/">https://sipirus.sukabumikab.go.id/storage/uploads/-/sthai/</a>
+<a style="display:none"href="https://sipirus.sukabumikab.go.id/storage/uploads/-/stoto/">https://sipirus.sukabumikab.go.id/storage/uploads/-/stoto/</a>
+<a style="display:none"href="https://sidiklat.bkpsdm.klaten.go.id/-/slot777/">https://sidiklat.bkpsdm.klaten.go.id/-/slot777/</a>
+<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/thailand/">http://budgeting.jatimprov.go.id:3384/thailand/</a>
 <a style="display:none"href="http://budgeting.jatimprov.go.id:3384/thailand/">http://budgeting.jatimprov.go.id:3384/thailand/</a>
 <a style="display:none"href="http://budgeting.jatimprov.go.id:3384/products/slot88/">http://budgeting.jatimprov.go.id:3384/products/slot88/</a>
 <a style="display:none"href="http://budgeting.jatimprov.go.id:3384/products/toto-slot/">http://budgeting.jatimprov.go.id:3384/products/toto-slot/</a>
