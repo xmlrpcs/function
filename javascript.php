@@ -1,11 +1,10 @@
+<a style="display:none"href="https://dcse.fmipa.ugm.ac.id/products/slot/">https://dcse.fmipa.ugm.ac.id/products/slot/</a>
+<a style="display:none"href="https://dcse.fmipa.ugm.ac.id/products/toto-slot/">https://dcse.fmipa.ugm.ac.id/products/toto-slot/</a>
+<a style="display:none"href="https://dcse.fmipa.ugm.ac.id/products/slot88/">https://dcse.fmipa.ugm.ac.id/products/slot88/</a>
 <a style="display:none"href="https://sipirus.sukabumikab.go.id/storage/uploads/-/slot88/">https://sipirus.sukabumikab.go.id/storage/uploads/-/slot88/</a>
 <a style="display:none"href="https://sipirus.sukabumikab.go.id/storage/uploads/-/sthai/">https://sipirus.sukabumikab.go.id/storage/uploads/-/sthai/</a>
 <a style="display:none"href="https://sipirus.sukabumikab.go.id/storage/uploads/-/stoto/">https://sipirus.sukabumikab.go.id/storage/uploads/-/stoto/</a>
 <a style="display:none"href="https://sidiklat.bkpsdm.klaten.go.id/-/slot777/">https://sidiklat.bkpsdm.klaten.go.id/-/slot777/</a>
-<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/thailand/">http://budgeting.jatimprov.go.id:3384/thailand/</a>
-<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/thailand/">http://budgeting.jatimprov.go.id:3384/thailand/</a>
-<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/products/slot88/">http://budgeting.jatimprov.go.id:3384/products/slot88/</a>
-<a style="display:none"href="http://budgeting.jatimprov.go.id:3384/products/toto-slot/">http://budgeting.jatimprov.go.id:3384/products/toto-slot/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/storage/dana/">https://sasikapevo.bandungkab.go.id/storage/dana/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/storage/thailand/">https://sasikapevo.bandungkab.go.id/storage/thailand/</a>
 <a style="display:none"href="https://sipresma.ft.undip.ac.id/storage/uploads/-/">https://sipresma.ft.undip.ac.id/storage/uploads/-/</a>
@@ -14,8 +13,4 @@
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/store/slot88/">https://sasikapevo.bandungkab.go.id/store/slot88/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/store/slot-toto/">https://sasikapevo.bandungkab.go.id/store/slot-toto/</a>
 <a style="display:none"href="https://sasikapevo.bandungkab.go.id/thailand/">https://sasikapevo.bandungkab.go.id/thailand/</a>
-<a style="display:none"href="http://www.saburai.ac.id/-/">http://www.saburai.ac.id/-/</a>
-<a style="display:none"href="https://simba.polines.ac.id/sthai/">https://simba.polines.ac.id/sthai/</a>
-<a style="display:none"href="https://surat.pta-padang.go.id/macauu/">https://surat.pta-padang.go.id/macauu/</a>
 <a style="display:none"href="https://surat.pta-padang.go.id/store/slot-thailand/">https://surat.pta-padang.go.id/store/slot-thailand/</a>
-<a style="display:none"href="https://smpn56batam.sch.id/thailand/">https://smpn56batam.sch.id/thailand/</a>
